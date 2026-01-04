@@ -1,2 +1,5 @@
-# vanity-swapper-ezikcocuklar
-tags: vanity sniper vanity swapper url sniper url swapper
+gökyüzüne bakmayı unutma gökyüzü senin, gökyüzü herkesin.
+
+dc: feelikethat
+
+Sniplere tutulmaz yakalanmaz
