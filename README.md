@@ -1,4 +1,4 @@
-gökyüzüne bakmayı unutma gökyüzü senin, gökyüzü herkesin.
+kullanın abican
 
 dc: feelikethat
 
